@@ -1,0 +1,2 @@
+# Nikaizinzika
+repositório lol
